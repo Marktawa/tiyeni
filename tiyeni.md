@@ -65,6 +65,8 @@
 
 # Mau Oyambirira
 
-Chikhalire munthu amalakalaka Mulungu nd
+Chikhalire munthu amalakalaka Mulungu ndipo amafunafuna. N'chifukwa chake amapemphera. Kupemphera ndi kulankhula ndi kuceza ndi Mulungu. Pemphero ndiye njira imene munthu amakambirana, kaya, kucezerana ndi Mulungu.
+
+Pakupemphera munthu amalumukizana ndi Mulungu. Ichi n'chotheka kwa m'khristu popeza kuti pa ubatizo wace adalumikizana ndi Khristu (Rom 6:5). Katekizimu wathu wa Chikatolika amanena kuti pemphero ndiye pangano pakati pa Mulungu ndi munthu (CCC # 2565).
 
 
